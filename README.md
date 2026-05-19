@@ -242,6 +242,7 @@ The credit system and complexity ceiling are real constraints — but for 80% of
 - 👉 [Hostinger Coupon Codes 2026](https://github.com/partners-png/Hostinger-Coupon-Codes-2026) — VPS, Website Builder & Horizons
 - 👉 [Hostinger VPS Coupon 2026](https://github.com/partners-png/Hostinger-VPS-Coupon-Code) — host your AI agents on Hostinger VPS
 - 👉 [Hostinger Horizons Coupon 2026](https://github.com/partners-png/Hostinger-Horizons-Coupon-Code) — Hostinger's AI app builder
+- 👉 [All No-Code Discount Codes 2026](https://github.com/partners-png/No-Code-Discount-Codes-2026) — every code in one place
 
 ---
 
